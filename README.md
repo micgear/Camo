@@ -1,4 +1,4 @@
-These are a collection of camo pattersn I have played with 
+These are a collection of camo pattersn I have played with, another hobby from making gear is custom patterns.
 
 I have had these printed with ripstopby the roll (RSBTR) and made them into gear, feel free to use them.
 
